@@ -35,7 +35,7 @@
 
 🎵[lҽαժíα](https://github.com/DoctorFunkbeat)
 
-〰︎ heya!! I’m really glad we started talking more because I think you’re such a kind person, please never think I dislike you! you have a special place in my heart as well and I hope we see more of each other in the future
+〰︎ heya!! I’m really glad we started talking more because I think you’re such a kind person, please never think I dislike you! you have a special place in my heart as well and I hope we see more of each other in the future 〰︎
 
 <img width="1199" height="711" alt="image" src="https://github.com/user-attachments/assets/cad8bb6e-5aea-421e-bdbd-1a237e862e82" />
 
@@ -44,7 +44,7 @@
 
 🎸[scαɾlҽԵԵ](https://github.com/FangScarlett)
 
-〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life >:)
+〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life 〰︎
 
 <img width="1199" height="649" alt="image" src="https://github.com/user-attachments/assets/0aae2e79-085d-47b1-9b40-26834183ee51" />
 
@@ -53,4 +53,4 @@
 
 🦊ოαlմ
 
-〰︎ you also probably will never read this but I think you’re one of the oldest friends I still have and I really thank you for that, you’re really good at the things you do and I’m glad we still managed to keep this friendship up!
+〰︎ you also probably will never read this but I think you’re one of the oldest friends I still have and I really thank you for that, you’re really good at the things you do and I’m glad we still managed to keep this friendship up! 〰︎
