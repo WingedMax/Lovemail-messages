@@ -42,6 +42,15 @@
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
+🎸[scαɾlҽԵԵ](https://github.com/FangScarlett)
+
+〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life >:)
+
+<img width="1199" height="649" alt="image" src="https://github.com/user-attachments/assets/0aae2e79-085d-47b1-9b40-26834183ee51" />
+
+
+✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
+
 🦊ოαlմ
 
 〰︎ you also probably will never read this but I think you’re one of the oldest friends I still have and I really thank you for that, you’re really good at the things you do and I’m glad we still managed to keep this friendship up!
