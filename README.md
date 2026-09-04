@@ -44,7 +44,7 @@
 
 🎸[scαɾlҽԵԵ](https://github.com/FangScarlett)
 
-〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life 〰︎
+〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life. SKEETER AND RICKY FOREVERR 〰︎
 
 <img width="1199" height="649" alt="image" src="https://github.com/user-attachments/assets/0aae2e79-085d-47b1-9b40-26834183ee51" />
 
