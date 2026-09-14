@@ -7,7 +7,7 @@
 
 ㅤㅤ🦐 [օlíѵҽɾ](https://github.com/oliveraliencreature-a11y)
 
-〰︎ I’d really like to think that we’ll be friends for life, you’re a very funny person and I hope you know that you matter a lot to me, it’s very nice to have someone I can be honest with. Never change unless it’s for the best!〰︎
+〰︎ 𝐆𝐨𝐝𝐝𝐚𝐦𝐧 𝐰𝐞’𝐯𝐞 𝐛𝐞𝐞𝐧 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐟𝐨𝐫 𝐬𝐨 𝐥𝐨𝐧𝐠! 𝐘𝐨𝐮’𝐫𝐞 𝐦𝐲 𝐛𝐞𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝 𝐭𝐨 𝐞𝐯𝐞𝐫 𝐞𝐱𝐢𝐬𝐭 𝐚𝐧𝐝 𝐡𝐨𝐧𝐞𝐬𝐭𝐥𝐲 𝐈 𝐜𝐚𝐧’𝐭 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐈 𝐮𝐬𝐞𝐝 𝐭𝐨 𝐛𝐞 𝐭𝐞𝐫𝐫𝐢𝐟𝐢𝐞𝐝 𝐨𝐟 𝐲𝐨𝐮. 𝐏𝐥𝐞𝐚𝐬𝐞 𝐤𝐞𝐞𝐩 𝐛𝐞𝐢𝐧𝐠 𝐟𝐮𝐧𝐧𝐲 𝐚𝐧𝐝 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 𝐈 𝐜𝐚𝐧 𝐭𝐫𝐮𝐬𝐭, 𝐧𝐞𝐯𝐞𝐫 𝐜𝐡𝐚𝐧𝐠𝐞 𝐮𝐧𝐥𝐞𝐬𝐬 𝐈 𝐭𝐞𝐥𝐥 𝐲𝐨𝐮 𝐭𝐨, 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐈’𝐦 𝐚𝐥𝐰𝐚𝐲𝐬 𝐫𝐢𝐠𝐡𝐭 /𝐡𝐣 〰︎
 
 <img width="1200" height="726" alt="image" src="https://github.com/user-attachments/assets/0804d7b4-e04e-46c2-8d59-162aafdc7f3e" />
 
@@ -16,7 +16,7 @@
 
 ⭐️ ოվ ճҽαմԵíբմl sísԵҽɾ
 
-〰︎ do you have GitHub? no. will you ever see this? probably not. but I do want to include you so here we go. You’re one of the best things in my life, I love joking around with you and I’m glad nothing ever changed between us and we always tell each other stuff. BIG HUG FROM YOUR BIG BRO. 〰︎
+〰︎ D𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐆𝐢𝐭𝐇𝐮𝐛? 𝐧𝐨. 𝐰𝐢𝐥𝐥 𝐲𝐨𝐮 𝐞𝐯𝐞𝐫 𝐬𝐞𝐞 𝐭𝐡𝐢𝐬? 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 𝐧𝐨𝐭. 𝐛𝐮𝐭 𝐈 𝐝𝐨 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐢𝐧𝐜𝐥𝐮𝐝𝐞 𝐲𝐨𝐮 𝐬𝐨 𝐡𝐞𝐫𝐞 𝐰𝐞 𝐠𝐨. 𝐘𝐨𝐮’𝐫𝐞 𝐨𝐧𝐞 𝐨𝐟 𝐭𝐡𝐞 𝐛𝐞𝐬𝐭 𝐭𝐡𝐢𝐧𝐠𝐬 𝐢𝐧 𝐦𝐲 𝐥𝐢𝐟𝐞, 𝐈 𝐥𝐨𝐯𝐞 𝐣𝐨𝐤𝐢𝐧𝐠 𝐚𝐫𝐨𝐮𝐧𝐝 𝐰𝐢𝐭𝐡 𝐲𝐨𝐮 𝐚𝐧𝐝 𝐈’𝐦 𝐠𝐥𝐚𝐝 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐞𝐯𝐞𝐫 𝐜𝐡𝐚𝐧𝐠𝐞𝐝 𝐛𝐞𝐭𝐰𝐞𝐞𝐧 𝐮𝐬 𝐚𝐧𝐝 𝐰𝐞 𝐚𝐥𝐰𝐚𝐲𝐬 𝐭𝐞𝐥𝐥 𝐞𝐚𝐜𝐡 𝐨𝐭𝐡𝐞𝐫 𝐬𝐭𝐮𝐟𝐟. 𝐁𝐈𝐆 𝐇𝐔𝐆 𝐅𝐑𝐎𝐌 𝐘𝐎𝐔𝐑 𝐁𝐈𝐆 𝐁𝐑𝐎. 〰︎
 
 <img width="746" height="450" alt="image" src="https://github.com/user-attachments/assets/edd719d2-5aca-4e18-8a37-2d13b3a833bf" />
 
@@ -26,7 +26,7 @@
 
 🪻[síოօղ](https://github.com/BloomingCrown)
 
-〰︎ holy gods this is going to be super corny, forgive me. I’m so grateful that we met and I can’t believe we managed to get here through stupid comics, your kindness and excited way you talk to people really impressed me and I can’t help but admire you for that. Hope I get to hear your flower facts for the rest of my life, I love you more than anything ♥
+〰︎ 𝐍𝐨 𝐦𝐚𝐭𝐭𝐞𝐫 𝐡𝐨𝐰 𝐦𝐚𝐧𝐲 𝐭𝐢𝐦𝐞𝐬 𝐈 𝐫𝐞𝐝𝐨 𝐭𝐡𝐢𝐬, 𝐢𝐭’𝐬 𝐬𝐭𝐢𝐥𝐥 𝐯𝐞𝐫𝐲 𝐜𝐡𝐞𝐞𝐬𝐲. 𝐈 𝐭𝐡𝐢𝐧𝐤 𝐲𝐨𝐮’𝐫𝐞 𝐚𝐛𝐬𝐨𝐥𝐮𝐭𝐞𝐥𝐲 𝐚𝐝𝐨𝐫𝐚𝐛𝐥𝐞 𝐚𝐧𝐝 𝐈 𝐜𝐨𝐮𝐥𝐝𝐧’𝐭 𝐛𝐞 𝐦𝐨𝐫𝐞 𝐠𝐥𝐚𝐝 𝐰𝐞 𝐜𝐚𝐦𝐞 𝐚𝐥𝐥 𝐭𝐡𝐢𝐬 𝐰𝐚𝐲, 𝐭𝐡𝐨𝐮𝐠𝐡 𝐈’𝐦 𝐬𝐭𝐢𝐥𝐥 𝐢𝐧 𝐬𝐡𝐨𝐜𝐤 𝐰𝐞 𝐦𝐞𝐭 𝐢𝐧 𝐒𝐏 𝐜𝐨𝐦𝐦𝐞𝐧𝐭 𝐬𝐞𝐜𝐭𝐢𝐨𝐧𝐬. 𝐘𝐨𝐮’𝐫𝐞 𝐚 𝐯𝐞𝐫𝐲 𝐬𝐰𝐞𝐞𝐭 𝐩𝐞𝐫𝐬𝐨𝐧 𝐚𝐧𝐝 𝐈’𝐥𝐥 𝐚𝐝𝐦𝐢𝐫𝐞 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐲𝐨𝐮𝐫 𝐤𝐢𝐧𝐝𝐧𝐞𝐬𝐬 𝐟𝐨𝐫 𝐚𝐬 𝐥𝐨𝐧𝐠 𝐚𝐬 𝐈 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮. 𝐈 𝐥𝐨𝐯𝐞 𝐲𝐨𝐮 𝐚𝐧𝐝 𝐧𝐞𝐯𝐞𝐫 𝐬𝐭𝐨𝐩 𝐲𝐚𝐩𝐩𝐢𝐧𝐠 𝐩𝐥𝐞𝐚𝐬𝐞 <𝟑
 
 <img width="847" height="620" alt="image" src="https://github.com/user-attachments/assets/27483fc1-1f22-4935-952e-5345a9d4de2b" />
 
@@ -35,7 +35,7 @@
 
 🎵[lҽαժíα](https://github.com/DoctorFunkbeat)
 
-〰︎ heya!! I’m really glad we started talking more because I think you’re such a kind person, please never think I dislike you! you have a special place in my heart as well and I hope we see more of each other in the future 〰︎
+〰︎𝐌𝐲 𝐛𝐫𝐨𝐭𝐡𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧𝐨𝐭𝐡𝐞𝐫 𝐦𝐨𝐭𝐡𝐞𝐫! 𝐈’𝐦 𝐬𝐨 𝐠𝐥𝐚𝐝 𝐰𝐞 𝐬𝐭𝐚𝐫𝐭𝐞𝐝 𝐭𝐚𝐥𝐤𝐢𝐧𝐠 𝐦𝐨𝐫𝐞, 𝐚𝐟𝐭𝐞𝐫 𝐦𝐨𝐫𝐞 𝐭𝐡𝐚𝐧 𝟐/𝟑 𝐨𝐟 𝐨𝐮𝐫 𝐟𝐫𝐢𝐞𝐧𝐝𝐬𝐡𝐢𝐩 𝐛𝐞𝐢𝐧𝐠 𝐬𝐩𝐞𝐧𝐭 𝐢𝐧 𝐚𝐰𝐤𝐰𝐚𝐫𝐝 𝐬𝐢𝐥𝐞𝐧𝐜𝐞, 𝐢𝐭’𝐬 𝐬𝐨 𝐟𝐮𝐧 𝐭𝐨 𝐚𝐜𝐭𝐮𝐚𝐥𝐥𝐲 𝐜𝐨𝐧𝐬𝐢𝐝𝐞𝐫 𝐲𝐨𝐮 𝐨𝐧𝐞 𝐨𝐟 𝐦𝐲 𝐜𝐥𝐨𝐬𝐞𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝𝐬, 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐭𝐫𝐮𝐬𝐭𝐢𝐧𝐠 𝐦𝐞 𝐚𝐧𝐝 𝐥𝐞𝐭𝐭𝐢𝐧𝐠 𝐦𝐞 𝐭𝐫𝐮𝐬𝐭 𝐲𝐨𝐮 𝐭𝐨𝐨.. 〰︎
 
 <img width="1199" height="711" alt="image" src="https://github.com/user-attachments/assets/cad8bb6e-5aea-421e-bdbd-1a237e862e82" />
 
@@ -44,7 +44,7 @@
 
 🎸[scαɾlҽԵԵ](https://github.com/FangScarlett)
 
-〰︎Scarlett!! I’m glad you and Ella got pin because now we talk way more, you’re genuinely an inspiration with how cool your style is!! You’re genuinely like a sister to me and I hope we can shit talk others for life. SKEETER AND RICKY FOREVERR 〰︎
+〰︎ 𝐒𝐜𝐚𝐫𝐥𝐞𝐭𝐭!! 𝐈’𝐦 𝐬𝐨 𝐠𝐥𝐚𝐝 𝐒𝐢𝐦𝐨𝐧 𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐞𝐝 𝐦𝐞 𝐭𝐨 𝐲𝐨𝐮 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐈 𝐝𝐞𝐞𝐩𝐥𝐲 𝐚𝐝𝐦𝐢𝐫𝐞 𝐲𝐨𝐮𝐫 𝐬𝐭𝐲𝐥𝐞 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐰𝐚𝐲 𝐲𝐨𝐮 𝐜𝐚𝐫𝐫𝐲 𝐲𝐨𝐮𝐫𝐬𝐞𝐥𝐟 𝐰𝐢𝐭𝐡 𝐟𝐥𝐮𝐢𝐝 𝐢𝐧𝐭𝐞𝐠𝐫𝐢𝐭𝐲, 𝐲𝐨𝐮 𝐭𝐫𝐮𝐥𝐲 𝐠𝐞𝐭 𝐦𝐞 𝐚𝐧𝐝 𝐈’𝐦 𝐬𝐨 𝐡𝐚𝐩𝐩𝐲 𝐭𝐨 𝐛𝐞 𝐚𝐛𝐥𝐞 𝐭𝐨 𝐭𝐫𝐮𝐬𝐭 𝐲𝐨𝐮 𝐟𝐮𝐥𝐥𝐲 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐭𝐡𝐨𝐮𝐠𝐡𝐭𝐬. 𝐒𝐊𝐄𝐄𝐓𝐄𝐑 𝐀𝐍𝐃 𝐑𝐈𝐂𝐊𝐘 𝐅𝐎𝐑𝐄𝐕𝐄𝐑!! 〰︎
 
 <img width="1199" height="649" alt="image" src="https://github.com/user-attachments/assets/0aae2e79-085d-47b1-9b40-26834183ee51" />
 
@@ -53,4 +53,4 @@
 
 🦊ოαlմ
 
-〰︎ you also probably will never read this but I think you’re one of the oldest friends I still have and I really thank you for that, you’re really good at the things you do and I’m glad we still managed to keep this friendship up! 〰︎
+〰︎  𝐲𝐨𝐮 𝐚𝐥𝐬𝐨 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 𝐰𝐢𝐥𝐥 𝐧𝐞𝐯𝐞𝐫 𝐫𝐞𝐚𝐝 𝐭𝐡𝐢𝐬 𝐛𝐮𝐭 𝐈 𝐭𝐡𝐢𝐧𝐤 𝐲𝐨𝐮’𝐫𝐞 𝐨𝐧𝐞 𝐨𝐟 𝐭𝐡𝐞 𝐨𝐥𝐝𝐞𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐈 𝐬𝐭𝐢𝐥𝐥 𝐡𝐚𝐯𝐞 𝐚𝐧𝐝 𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐭𝐡𝐚𝐭, 𝐲𝐨𝐮’𝐫𝐞 𝐫𝐞𝐚𝐥𝐥𝐲 𝐠𝐨𝐨𝐝 𝐚𝐭 𝐭𝐡𝐞 𝐭𝐡𝐢𝐧𝐠𝐬 𝐲𝐨𝐮 𝐝𝐨 𝐚𝐧𝐝 𝐈’𝐦 𝐠𝐥𝐚𝐝 𝐰𝐞 𝐬𝐭𝐢𝐥𝐥 𝐦𝐚𝐧𝐚𝐠𝐞𝐝 𝐭𝐨 𝐤𝐞𝐞𝐩 𝐭𝐡𝐢𝐬 𝐟𝐫𝐢𝐞𝐧𝐝𝐬𝐡𝐢𝐩 𝐮𝐩! 〰︎
